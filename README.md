@@ -7,7 +7,6 @@
 
 - ⚡ Fun fact **I can write code with one hand while enjoying a cup of coffee with the other!**
 
-![image](https://github.com/AshwinC17/AshwinC17/assets/66210255/30992402-5053-4371-b017-ab01794b37c7)
 
 
 <h3 align="left">Connect with me:</h3>
